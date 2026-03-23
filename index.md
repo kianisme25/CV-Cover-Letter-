@@ -28,4 +28,4 @@ You can view or download my cover letter below:
 ---
 
 ## 📫 Contact
-- LinkedIn: https://www.linkedin.com/in/kian-hans-pagharion-7322952b2/
+- [LinkedIn](https://www.linkedin.com/in/kian-hans-pagharion-7322952b2/)
